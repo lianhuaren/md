@@ -14,5 +14,6 @@
 
 ![中信证券](zxzq01.jpg)
 
+http://finance.eastmoney.com/news/1349,20160827658797486.html
 
 http://finance.sina.com.cn/stock/quanshang/qsyj/2016-08-26/doc-ifxvitex8988252.shtml
